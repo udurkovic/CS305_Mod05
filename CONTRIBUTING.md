@@ -1,1 +1,1 @@
-Contributors to the project:
+Contributors to the project: Ethan Wilcox
